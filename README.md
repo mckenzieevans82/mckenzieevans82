@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @mckenzieevans82
-- 👀 I’m interested in  New media, such and coding, digitial art, animation etc. 
+- 👀 I’m interested in  New media, including but not limited too; digitial art, animation, film making and coding. 
 - 🌱 I’m currently learning, how to exappnds my digitial arts knowdledge
 - 📫 How to reach me- mckenzie.evans@maine.edu
 
